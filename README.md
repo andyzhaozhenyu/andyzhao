@@ -1,2 +1,1 @@
-# andyzhao
-If a person lived in a world where death rates and birth rates are both very high, the person should be modern people. In the morning, the person will go outside to hunting with other modern people, many people may be killed by beats. At noon, the carrying capacity of the area they live in now is not enough, they have to find a new area have enough resources to support their lives, many people would die on the way, because they don’t have enough food and water, also some of them would get illness. But also many babies will born on the way. In the evening the person need to find a place to take a rest with other modern people.
+
